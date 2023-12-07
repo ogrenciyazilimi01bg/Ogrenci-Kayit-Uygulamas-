@@ -1,1 +1,2 @@
-# Ogrenci-Kayit-Uygulamas-
+# Ogrenci-Kayit-Uygulaması-
+jjhdkjskjfkdjkjl
